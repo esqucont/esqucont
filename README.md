@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @esqucont
-- 👀 I’m interested in learning and colaborte
+- 👀 I'm interested in learning and collaboration
